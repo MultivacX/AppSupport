@@ -1,3 +1,3 @@
-**Contact Us**
+**App Support**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at pushanjun@outlook.com.
+If you have any questions or suggestions about this App, do not hesitate to contact me at pushanjun@outlook.com.
